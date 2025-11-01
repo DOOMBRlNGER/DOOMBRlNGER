@@ -1,14 +1,41 @@
 ྀ꒰꛱𓈒ֺּׅ ¦| 𓈒 ݂۫˚ꦼ ꢺ𝘁ׁʋⲣɪժ!! ་།𓐇݁𓈒ֺּໃ✚།†
 
 ︶˚̣̣̣ ྀིI go by Owen or Duskwave!! Do not call me Dusk unless close. Feel free to ask if Im are comfortable enough for you to call me Dusk!! ໒꒱ིྀ༝⁺ 
+
 𓏼ׅ ۟ 𓊆𓏴ྀི ➜ O14  ໒꒰ ✙ ཀ ̟ ◟｡꒱ྀི১
 ﹒੭୧  𓏼  Ambivert . Monophobic!!꒰𓏼✚
-         𓈒  ̣̣ ۟  ♡⃘𓈒  ̣̣̥  ͜    ۪۪۪  𓈒ּ֯݁ 
-     ﾉ 𓈒 ໒꒱༢ེུ༷ ⠀ DNI!!! ｡°(°¯᷄◠¯᷅°)°｡
+
+⠀⠀﹒†˖̣̣̣ ͜⠀⠀⠀🪽⠀⠀࿐𓂃◞⠀⠀ ᥩིྀ ˶
+
+
+ ⠀⠀⠀ ﾉ 𓈒 ໒꒱༢ེུ༷ ⠀ DNI!!! ｡°(°¯᷄◠¯᷅°)°｡
+ 
+
+⠀⠀⠀𐔌ྀ⠀⠀⠀⠀૮꒰ ｡. ｡꒱ྀིა⠀⠀⠀⠀ℱ࿐༢
+     
 日記✦͏͏``ADULTS!!`` DNI unless trusted.᪖.᪲.ᩤ᭔
+
 𑁥౿ ⊹ ‧₊˚||``PEDOS,LOLIS``|| OR SUCH PEOPLE !! youre not welcomed to my profile. ✿
+
 𓏼 ͜͜✚ ⠀ྀི ``Underage!!`` We mostly do ||sex|| Jokes every chance we get!! So its better for yall to not interact.❀ ݃ ॱ .  ᣟ݂
+
 ᣟ݂ ׁׅ֒ ᩧ ꒰ ꒰ׁׅ ྀི ``RUDE // MEAN PEOPLE`` Im highly hypersensitive when it comes to being rude. I cant freely block too!! So it just ruins me..𖧁ৎ ◞◟ ͜   ◟
+
+⠀      ⏖ † ྀི Stop that!! 𓏼 ͜͜✚  ྀི
+
+⠀ ◜ ͡  ֪  ◜ ͡ ◝    ͡   ۪  ◜ ͡ ◝ Ⳋ᧙.◜ ͡ ◝◜ ͡  ֪
+    
+⠀  ⠀⠀⠀⠀⠀  ✙ .   ͜     , ᛝ ˚ 
+
+Doubles !!໒꒱ིྀ༝⁺
+ ་∔་།   𝝑𝝔 my fictkins so yall would stop interacting if yall kin it too  (doesnt affects close friends unless talks about them alot)ೃ𓈒𓏶ྀི
+
+ 
+ᦏ ͜𓏼˚ ◞Telamon  , Veeronica  , Brandon  , Two time. , 007n7 , Noli , Betrayed 1x1x1x1 𓏲 ๋࣭  ࣪ ˖
+
+
+❀ ݃ ॱ .  ᣟ݂  ̣̣̥ Dont have much,extra is Im EXTREMELY JEALOUS our HYPERSENSITIVE so interact with care or give me some attention too mannn...  ໒꒰੭୧ ཀ ̟ <｡꒱ྀི১
+
 
 ➜ASK / DM ; Betrayed_1x1x1x1 on discord for more info!!
 <!--
