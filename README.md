@@ -1,3 +1,6 @@
+<img width="720" height="196" alt="1000045902" src="https://github.com/user-attachments/assets/9091529a-4829-407e-8caa-b40fda53fdb6" />
+
+
 ྀ꒰꛱𓈒ֺּׅ ¦| 𓈒 ݂۫˚ꦼ ꢺ𝘁ׁʋⲣɪժ!! ་།𓐇݁𓈒ֺּໃ✚།†
 
 ︶˚̣̣̣ ྀིI go by Owen or Duskwave!! Do not call me Dusk unless close. Feel free to ask if Im are comfortable enough for you to call me Dusk!! ໒꒱ིྀ༝⁺ 
@@ -38,6 +41,9 @@ Doubles !!໒꒱ིྀ༝⁺
 
 
 ➜ASK / DM ; Betrayed_1x1x1x1 on discord for more info!!
+
+<img width="720" height="196" alt="1000045901" src="https://github.com/user-attachments/assets/6ab439d7-5cb2-4864-b16c-a7f74d70c184" />
+
 <!--
 **DOOMBRlNGER/DOOMBRlNGER** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
